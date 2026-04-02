@@ -1,4 +1,6 @@
 # Co-Living Market Industry Report
+![Co-Living Market (1)](https://github.com/user-attachments/assets/58a24476-c721-4df9-a388-77c03a9aceaf)
+
 
 **Market Overview**
 
